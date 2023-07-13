@@ -1,2 +1,1 @@
-Mernis Dogrulama
 
